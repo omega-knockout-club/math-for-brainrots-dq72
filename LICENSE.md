@@ -1,4 +1,4 @@
-
+advanced bedwars Script offers the most advanced bedwars Script, with anti-ban and invisibility. Perfect for dominating any match.
 
 
 
